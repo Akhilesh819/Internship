@@ -1,2 +1,0 @@
-# Internship
-For internship
